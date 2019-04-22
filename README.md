@@ -8,3 +8,5 @@ https://twitter.com/ProgrammerBooks/status/1120259693904003072
 Value Proposition Design
 
 Startup Owner's Manual
+
+https://t.co/I6TE0g2P37
