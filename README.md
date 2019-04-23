@@ -16,3 +16,5 @@ https://help.wefunder.com/#/books/305001-startup-investing
 https://angel.co/blog 
 
 Natalie Sisson
+
+https://books.google.com/books?id=sv1fDwAAQBAJ&printsec=frontcover&dq=how+to+code+program+for+fun&hl=en&sa=X&ved=0ahUKEwifxtb2jefhAhVqj1QKHb7ACgQQ6AEITDAG#v=onepage&q=how%20to%20code%20program%20for%20fun&f=false
