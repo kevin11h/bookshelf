@@ -12,3 +12,5 @@ Startup Owner's Manual
 https://t.co/I6TE0g2P37
 
 https://help.wefunder.com/#/books/305001-startup-investing
+
+https://angel.co/blog 
