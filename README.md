@@ -26,3 +26,5 @@ https://www.goodreads.com/book/show/7307855-power-friending
 https://www.goodreads.com/book/show/32791720-equity-crowdfunding
 
 https://www.goodreads.com/list/show/128688.Best_Books_on_Organizing_
+
+https://www.wayz.co.nz/store/mempowered
