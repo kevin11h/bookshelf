@@ -28,3 +28,6 @@ https://www.goodreads.com/book/show/32791720-equity-crowdfunding
 https://www.goodreads.com/list/show/128688.Best_Books_on_Organizing_
 
 https://www.wayz.co.nz/store/mempowered
+
+Guest People: Hakka Identity in China and Abroad
+edited by Nicole Constable
