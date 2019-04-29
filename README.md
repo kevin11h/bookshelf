@@ -31,3 +31,7 @@ https://www.wayz.co.nz/store/mempowered
 
 Guest People: Hakka Identity in China and Abroad
 edited by Nicole Constable
+
+Dev-books  http://www.dev-books.com/
+
+https://medium.freecodecamp.org/i-analyzed-every-book-ever-mentioned-on-stack-overflow-here-are-the-most-popular-ones-eee0891f1786
