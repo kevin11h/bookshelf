@@ -37,3 +37,5 @@ Dev-books  http://www.dev-books.com/
 https://medium.freecodecamp.org/i-analyzed-every-book-ever-mentioned-on-stack-overflow-here-are-the-most-popular-ones-eee0891f1786
 
 Quantum Questions
+
+https://books.google.com/books?id=SjieioGGd0gC
