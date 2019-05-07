@@ -41,3 +41,7 @@ Quantum Questions
 https://books.google.com/books?id=SjieioGGd0gC
 
 https://books.google.com/books?id=dqcLkkjmXmQC
+
+https://www.goodreads.com/work/quotes/47250922-the-inevitable-understanding-the-12-technological-forces-that-will-shap
+
+https://www.futuristgerd.com/2019/03/great-quote-by-kevin-kelly-the-inevitable-a-good-question-may-be-the-last-job-a-machine-will-learn-to-do-a-good-question-is-what-humans-are-for/
