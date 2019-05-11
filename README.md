@@ -43,3 +43,5 @@ https://books.google.com/books?id=SjieioGGd0gC
 https://books.google.com/books?id=dqcLkkjmXmQC 
 
 https://books.google.com/books?id=GbKyAAAAQBAJ
+
+https://thediaryofadebutante.com/best-business-books-for-women-2018/
