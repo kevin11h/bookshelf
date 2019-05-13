@@ -45,3 +45,5 @@ https://books.google.com/books?id=dqcLkkjmXmQC
 https://books.google.com/books?id=GbKyAAAAQBAJ
 
 https://thediaryofadebutante.com/best-business-books-for-women-2018/
+
+https://www.goodreads.com/author/show/6569495.H_W_Charles
