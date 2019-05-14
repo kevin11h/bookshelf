@@ -51,3 +51,7 @@ https://www.goodreads.com/author/show/6569495.H_W_Charles
 https://liamchingliu.wordpress.com/2014/09/20/hakka-chinese-political-leadership-in-east-and-southeast-asia-and-south-america/
 
 http://jungcurrents.com/alchemy-meditation-egg
+
+https://leanpub.com/programming-for-beginners
+
+
