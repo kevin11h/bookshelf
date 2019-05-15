@@ -55,3 +55,5 @@ http://jungcurrents.com/alchemy-meditation-egg
 https://leanpub.com/programming-for-beginners
 
 https://carljungdepthpsychologysite.blog/2019/02/08/carl-jung-i-am-afraid-that-the-mere-fact-of-my-presence-takes-you-away-from-yourself/#.XNs8cI5KjIV
+
+https://leanpub.com/thedatasciencesalon
