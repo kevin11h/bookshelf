@@ -65,3 +65,7 @@ OPM: Other People's Money : how to Attract Other People's Money for Your Investm
 
 Using Other People's Money: How to invest in property Vicki Wusche
 https://books.google.com/books?id=4dfXjwEACAAJ&dq=opm+kiyosaki&hl=en&sa=X&ved=0ahUKEwjSmLPVspziAhVHjp4KHdYpA28Q6AEIKDAA
+
+https://www.goodreads.com/book/show/778369.Perpetua_s_Passion
+
+https://www.goodreads.com/book/show/2128597.The_Foundations_of_Newton_s_Alchemy
