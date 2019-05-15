@@ -59,3 +59,9 @@ https://carljungdepthpsychologysite.blog/2019/02/08/carl-jung-i-am-afraid-that-t
 https://leanpub.com/thedatasciencesalon
 
 https://leanpub.com/u/thekua
+
+# OPM
+OPM: Other People's Money : how to Attract Other People's Money for Your Investments--the Ultimate Leverage
+
+Using Other People's Money: How to invest in property Vicki Wusche
+https://books.google.com/books?id=4dfXjwEACAAJ&dq=opm+kiyosaki&hl=en&sa=X&ved=0ahUKEwjSmLPVspziAhVHjp4KHdYpA28Q6AEIKDAA
