@@ -71,3 +71,14 @@ https://www.goodreads.com/book/show/778369.Perpetua_s_Passion
 https://www.goodreads.com/book/show/2128597.The_Foundations_of_Newton_s_Alchemy
 
 https://www.programmer-books.com/pro-mern-stack/
+
+The Woman Who Smashed Codes: A True Story of Love, Spies, and the Unlikely Heroine who Outwitted America's Enemies
+by Jason Fagone
+
+Practical Cryptography 
+by Niels Ferguson 
+ 
+Black Hat Python: Python Programming for Hackers and Pentesters
+Seitz, Justin
+
+https://www.goodreads.com/review/list/97161804-christopher-ngo?utf8=%E2%9C%93&shelf=hacker-library&title=christopher-ngo&per_page=infinite
