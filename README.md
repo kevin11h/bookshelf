@@ -1,5 +1,7 @@
 # bookshelf
 
+https://www.isbns.co.tt/isbn/9789812294838/
+
 https://www.goodreads.com/book/show/42832583-practical-time-series-analysis
 
 
