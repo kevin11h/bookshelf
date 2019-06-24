@@ -4,6 +4,7 @@ http://www.choicebooks.org/
 
 https://firstchoicebooks.ca/wp-content/uploads/2013/08/FirstChoiceBooks_PublishingGuide_v3.pdf
 
+https://en.wikipedia.org/wiki/Psychology_of_programming
 
 
 https://www.isbns.co.tt/isbn/9789812294838/
