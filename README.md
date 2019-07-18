@@ -99,3 +99,7 @@ https://www.oreilly.com/pub/au/7766
 https://www.goodreads.com/search?q=Margaret+Hamilton
 
 https://en.wikipedia.org/wiki/The_Secret_of_the_Golden_Flower
+
+Mobility / Logistics
+
+https://www.goodreads.com/search?page=2&query=Mobility%2FLogistics&tab=books&utf8=%E2%9C%93
