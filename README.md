@@ -103,3 +103,5 @@ https://en.wikipedia.org/wiki/The_Secret_of_the_Golden_Flower
 Mobility / Logistics
 
 https://www.goodreads.com/search?page=2&query=Mobility%2FLogistics&tab=books&utf8=%E2%9C%93
+
+https://books.google.com/books?id=yHU8PgAACAAJ&dq=ruth+fuller+sasaki&hl=en&sa=X&ved=0ahUKEwif3eCEucLjAhUSEXwKHYn9DfIQ6AEIKjAA
