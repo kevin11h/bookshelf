@@ -105,3 +105,7 @@ Mobility / Logistics
 https://www.goodreads.com/search?page=2&query=Mobility%2FLogistics&tab=books&utf8=%E2%9C%93
 
 https://books.google.com/books?id=yHU8PgAACAAJ&dq=ruth+fuller+sasaki&hl=en&sa=X&ved=0ahUKEwif3eCEucLjAhUSEXwKHYn9DfIQ6AEIKjAA
+
+
+## Art of Strategic Partnering: Dance Elephants
+https://books.google.com/books?id=r2DytwEACAAJ&dq=art+of+strategic+partnering:+dancing+with+elephants+pdf&hl=en&sa=X&ved=0ahUKEwjUsLDro8_jAhVhjFQKHSv5AGgQ6AEIKjAA
