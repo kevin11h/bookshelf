@@ -109,3 +109,9 @@ https://books.google.com/books?id=yHU8PgAACAAJ&dq=ruth+fuller+sasaki&hl=en&sa=X&
 
 ## Art of Strategic Partnering: Dance Elephants
 https://books.google.com/books?id=r2DytwEACAAJ&dq=art+of+strategic+partnering:+dancing+with+elephants+pdf&hl=en&sa=X&ved=0ahUKEwjUsLDro8_jAhVhjFQKHSv5AGgQ6AEIKjAA
+
+
+## Jessica Livingstone VC
+https://www.goodreads.com/book/show/8853830-android-essentials
+
+secrets of the money lab
