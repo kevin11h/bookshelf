@@ -115,3 +115,7 @@ https://books.google.com/books?id=r2DytwEACAAJ&dq=art+of+strategic+partnering:+d
 https://www.goodreads.com/book/show/8853830-android-essentials
 
 secrets of the money lab
+
+Miracles Master Qi Gong
+
+https://www.amazon.com/Mastering-Miracles-Healing-Taught-Master/dp/0446520306
